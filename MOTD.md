@@ -7,4 +7,6 @@
 4. NO PERMANENT / MULTI-DAY BANS!
 5. Respect others and have fun!
 
+**Discord: https://discord.gg/fx8y8nyCeH**
+
 **Glory awaits for those who fight with honor.**
